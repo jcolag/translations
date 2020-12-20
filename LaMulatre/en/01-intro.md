@@ -4,7 +4,7 @@ The first rays of dawn had just barely whitened the black peaks of the mountains
 
 "Hello master," he said, discovering himself.
 
-"Ah! there you are," and I held out my hand, which he gratefully pressed.
+"Ah!  There you are," and I held out my hand, which he gratefully pressed.
 
 "Master," he said, "it is with a noble heart what you do there, but don't you know that a negro is as vile as a dog?  Society rejects him.  Men hate him.  The laws curse him.  Ah!  He is a very unhappy being, who does not even have the consolation of being always virtuous.  May he be born good, noble, generous.  May God give him a loyal and great soul.  In spite of that, very often he descends into the grave with his hands tinged with blood, and his heart still greedy for revenge.  For, more than once, he has seen the dreams of a young man destroyed.  Because experience has taught him that his good deeds were not counted, and that he should not love his wife or his sons.  For one day, the first will be seduced by the master, and his blood sold far away despite his despair.  So what do you want him to become?  Will he break his head against the pavement of the street?  Will he kill his executioner?  Or do you believe that the human heart can be shaped by such misfortunes?"
 
@@ -20,7 +20,7 @@ The old negro fell silent for a moment as if to wait for my answer.
 
 * * *
 
-Do you see this building which so gracefully rises to the sky, and which seems to be reflected in the sea; this building which resembles, by its originality, a temple, and by its coquetry, some palace, it is St-M * * * manor.  In one of the rooms of this building, strollers, landlords, and large planters meet every day.  The first two play billiards or smoke their delicious Havana cigars, while the last buy negroes, which is to say free men uprooted by cunning or by force from their homeland, and become, by outright violence, the property of their fellow men.  Here, someone delivers the husband without the wife.  There, the sister without the brother.  Further on, the mother without the children.  Do you shudder?  However, these infamous sales are held all the time.  But soon, someone offers a young Senegalese girl, so beautiful that the same exclamation escapes everyone's mouth...
+Do you see this building which so gracefully rises to the sky, and which seems to be reflected in the sea?  This building which resembles, by its originality, a temple, and by its coquetry, some palace, it is St-M * * * manor.  In one of the rooms of this building, strollers, landlords, and large planters meet every day.  The first two play billiards or smoke their delicious Havana cigars, while the last buy negroes, which is to say free men uprooted by cunning or by force from their homeland, and become, by outright violence, the property of their fellow men.  Here, someone delivers the husband without the wife.  There, the sister without the brother.  Further on, the mother without the children.  Do you shudder?  However, these infamous sales are held all the time.  But soon, someone offers a young Senegalese girl, so beautiful that the same exclamation escapes everyone's mouth...
 
 "She is beautiful!"  Everyone would like her to make her his mistress, but no one dares to fight the young Alfred, one of the richest planters in this country, then twenty-two years old.
 
